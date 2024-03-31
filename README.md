@@ -5,6 +5,9 @@ Salvador Cullen
 Hola, que rapido pasa el tiempo en utn. Espero este año llevarme muchas cosas del tiempo acá y de todos los recursos que hay.  
 Helado favorito: banan split  
 TOP animales: Orca, cocodrilo, perro  
-Esta semana me fui un campo y la carne es superior, fnc>g2
-
+Esta semana me fui un campo y la carne es superior, fnc>g2  
+chiste malo:  
+- Ha cometido usted un crimen matemático.  
+- Pues lo asumo.  
+- Pues lo arresto.  
 
